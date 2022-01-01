@@ -1,0 +1,1 @@
+# Fortune-dot.github.io
